@@ -6,10 +6,14 @@ Tenho muitos hobbies como música, arte digital, esportes e games. A área de de
 
 Todas as imagens utilizadas são free tiradas de um banco de imagens na internet o qual todo designer possui e estão referidas em um arquivo de texto nomeado como **links** dentro de cada diretório do projeto. Já as imagens particulares, cujo trabalho é usado para fins comerciais, foi comprado a licença de uso e distribuição para seu uso nas montagens. Parte do trabalho final estão à venda com NFT e outras, cujo uso é especifico, não estão à venda.
 
+As mais novas criações - públicas - estarei deixando o making neste repositório. Já outras, cujo fim é especifico, estaram privadas.
+As criações antigas ja possuem referencia no github. 
+
+
 
 - Fresh Skin
 
-É um tratamento de imagem realiado para dar tonalidade na pele e tecnicas de maquiagem.
+É um tratamento de imagem realizado para dar tonalidade na pele e tecnicas de maquiagem.
 
 **Behance** | <a href="https://www.behance.net/gallery/134615461/Fresh-Skin"> Freash Skin </a>
 
