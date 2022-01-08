@@ -4,7 +4,7 @@
 
 Tenho muitos hobbies como música, arte digital, esportes e games. A área de designer que atuo é a montagem e tratamento de imagens - ainda não me aveturei na illustração. Tenho um canal no Behance que costumo colocar as artes criadas.
 
-Todas as imagens utilizadas são free tiradas de um banco de imagens na internet o qual todo designer possui e estão referidas em um arquivo de texto nomeado como **links** dentro de cada diretório do projeto. As particulares cujo trabalho é usado para fins comerciais foi comprado a licença de uso e distribuição. Parte dessas imagens estão à venda com NFT já outras, para uso especifico, não estão à venda.
+Todas as imagens utilizadas são free tiradas de um banco de imagens na internet o qual todo designer possui e estão referidas em um arquivo de texto nomeado como **links** dentro de cada diretório do projeto. Já as imagens particulares, cujo trabalho é usado para fins comerciais, foi comprado a licença de uso e distribuição para seu uso nas montagens. Parte dessas imagens estão à venda com NFT já outras, para uso especifico, não estão à venda.
 
 
 - Fresh Skin
