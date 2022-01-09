@@ -9,7 +9,7 @@ Todas as imagens utilizadas são free tiradas de um banco de imagens na internet
 As mais novas criações - públicas - estarei deixando o making neste repositório. Já outras, cujo fim é especifico, estaram privadas.
 As criações antigas ja possuem referencia no github. 
 
-
+obs: **A microsoft permite apenas que seja feito git pull em arquivos com menos de 100MB. POr este motivo esta em outro repositório: no <a href="https://gitlab.com/Agency777/artwork">GitLab</a>**
 
 - Fresh Skin
 
