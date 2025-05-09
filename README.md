@@ -93,7 +93,9 @@ As músicas falam sobre superação, luta interior e renascimento. Um projeto qu
 
 🔗 [Site - Halfeti](https://agencylk7.wixsite.com/halfeti)
 
-Um projeto fascinante inspirado na lendária **rosa negra de Halfeti**, símbolo de mistério, força e beleza rara 🌑🌹. Este conceito mistura cultura, moda e arte, refletindo temas como **renascimento, resistência e singularidade**. É um espaço para explorar criações artísticas que fogem do comum, misturando estética dark e elegância refinada com letras em portugues misturando estilos ocmo Jazz, MPB, Soul e Pop. Esse projeto ainda é DEMO.
+Um projeto fascinante inspirado na lendária **rosa negra de Halfeti**, símbolo de mistério, força e beleza rara 🌑🌹. Este conceito mistura cultura e arte, refletindo temas como **renascimento, resistência e singularidade**. É um espaço para explorar criações artísticas que fogem do comum, misturando estética dark e elegância refinada com letras em português misturando estilos como Jazz, MPB, Soul e Pop com letras cultas e poéticas. Esse projeto ainda é DEMO.
 
-Esses projetos de musicas são os mais recentes que tenho dado masi atenção, contudo, existe muito conteúdo que coleciono ao longo dos anos que não publiquei que poderão virar arte como cadernos com rascunhos de musicas, ideias novas e a mistira da toda experiência adquerida como músico, compositor e produtor.
+--- 
+
+Esses projetos de musicas são os mais recentes que tenho dado mais atenção, contudo, existe muito conteúdo que coleciono ao longo dos anos que não publiquei que poderão virar arte como cadernos com rascunhos de musicas, ideias novas e toda experiência adquerida como músico, compositor e produtor.
 
