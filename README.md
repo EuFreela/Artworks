@@ -48,6 +48,8 @@ Todas as músicas são autorais. Se houver algum interesse entre em contato comi
 
 ### 🐰 **Bunny Land Music**
 
+![bunny man](https://i.postimg.cc/52cLnzbr/1743041184380.jpg)
+
 🔗 [YouTube - Bunny Land Music](https://www.youtube.com/channel/UCK0tu4XpTVzdLzENaROY5cQ)
 
 Um projeto conceitual e profissional, que representa um **coelho DJ** mergulhado em batidas eletrônicas, trance, EDM e avant-pop. A ideia é transportar os ouvintes para universos sonoros únicos – algo como seguir o coelho branco para um mundo mágico e vibrante. Participações da minha filha, Liat, em alguns clipes, como no **Runaway Lights**, trazendo moda e música bem juntinhas!
@@ -67,6 +69,8 @@ Ouça no Spotfy: 🔗 [YouTube - Bunny Land Music](https://artists.landr.com/056
 
 ### 🔥 **Resonance**
 
+![resonance](https://i.postimg.cc/1tYN6nvJ/upscalemedia-transformed-1.jpg)
+
 🔗 [SoundCloud - Resonance](https://soundcloud.com/neo-resonance/sets/echoes-of-redemption)
 
 Resonance nasceu da amizade e parceria entre amigos **Rodrigo Alves** e **Adriano Lima** (ex-integrante do Madsneaks e presidente do Motoclub Guardiões Ventania). Compomos músicas autorais que misturam **rock alternativo, hard rock e baladas introspectivas**, com letras profundas e poderosas. Esse projeto ainda é DEMO.
@@ -84,6 +88,8 @@ As músicas falam sobre superação, luta interior e renascimento. Um projeto qu
 ---
 
 ### 🌹 **Rosa Negra de Halfeti**
+
+![halfeti](https://i.postimg.cc/d057PZcw/Cover.png)
 
 🔗 [Site - Halfeti](https://agencylk7.wixsite.com/halfeti)
 
