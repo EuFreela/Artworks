@@ -73,7 +73,7 @@ Ouça no Spotfy: 🔗 [YouTube - Bunny Land Music](https://artists.landr.com/056
 
 🔗 [SoundCloud - Resonance](https://soundcloud.com/neo-resonance/sets/echoes-of-redemption)
 
-Resonance nasceu da amizade e parceria entre amigos **Rodrigo Alves** e **Adriano Lima** (ex-integrante do Madsneaks e presidente do Motoclub Guardiões Ventania). Compomos músicas autorais que misturam **rock alternativo, hard rock e baladas introspectivas**, com letras profundas e poderosas. Esse projeto ainda é DEMO.
+Resonance nasceu da amizade e parceria entre amigos **Rodrigo Alves** e **Adriano Lima** (ex-integrante do Madsneaks e presidente do Motoclub Guardiões Ventania). Compomos músicas autorais que misturam **rock alternativo, hard rock e baladas introspectivas**, com letras profundas e poderosas. Esse projeto ainda é DEMO que representa parcialmente uso de Inteligencia Artificial.
 
 💫 **Destaques:**
 
@@ -93,7 +93,7 @@ As músicas falam sobre superação, luta interior e renascimento. Um projeto qu
 
 🔗 [Site - Halfeti](https://agencylk7.wixsite.com/halfeti)
 
-Um projeto fascinante inspirado na lendária **rosa negra de Halfeti**, símbolo de mistério, força e beleza rara 🌑🌹. Este conceito mistura cultura e arte, refletindo temas como **renascimento, resistência e singularidade**. É um espaço para explorar criações artísticas que fogem do comum, misturando estética dark e elegância refinada com letras em português misturando estilos como Jazz, MPB, Soul e Pop com letras cultas e poéticas. Esse projeto ainda é DEMO.
+Um projeto fascinante inspirado na lendária **rosa negra de Halfeti**, símbolo de mistério, força e beleza rara 🌑🌹. Este conceito mistura cultura e arte, refletindo temas como **renascimento, resistência e singularidade**. É um espaço para explorar criações artísticas que fogem do comum, misturando estética dark e elegância refinada com letras em português misturando estilos como Jazz, MPB, Soul e Pop com letras cultas e poéticas. Esse projeto ainda é DEMO que representa parcialmente uso de Inteligencia Artificial.
 
 --- 
 
