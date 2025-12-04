@@ -44,6 +44,8 @@ Parei de postar no Behance porque agora passou a cobrar
 Além da arte digital, tenho uma conexão profunda com a música, participando de projetos sonoros que misturam criatividade, emoção e experimentação.
 Todas as músicas são autorais. Se houver algum interesse entre em contato comigo.
 
+Todas as novidades do país das maravilhas [veja aqui](https://linktr.ee/wonderlandsong)
+
 ---
 
 ### 🐰 **Bunny Land Music**
