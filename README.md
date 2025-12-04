@@ -16,24 +16,24 @@ Além da tecnologia, tenho muitas paixões como música, arte digital, esportes 
 
 ## 🌟 **Projetos em Destaque**
 
-* **Fresh Skin**
+* **Capa do meu livro**
   Tratamento de imagem para realçar a tonalidade da pele e aplicar técnicas digitais de maquiagem.
-  🔗 **Behance** | [Fresh Skin](https://www.behance.net/gallery/134615461/Fresh-Skin)
+  🔗 **Behance** | [Herança Artificial](https://www.behance.net/gallery/212710851/Heranca-Artificial-O-Limiar-da-Esperanca))
 
-* **Woman Face**
+* **Personagens**
   Outro tratamento de imagem focado em vitalizar o tom da pele com detalhes realistas e refinados.
-  🔗 **Behance** | [Woman Face](https://www.behance.net/portfolio/editor?project_id=134640771)
+  🔗 **Behance** | [Personagens do meu livro](https://www.behance.net/gallery/212824069/Kepler-Mascaras-e-Mistrios))
 
-* **Deep of Sea**
+* **In the Forest Cover**
   Montagem criativa que combina uma cidade e o oceano, simulando um ambiente submerso. A imagem recebeu um filtro de pintura a óleo para um efeito artístico que lembra obras tradicionais.
-  🔗 **Behance** | [Deep of Sea](https://www.behance.net/gallery/134615691/deep-of-the-Sea)
+  🔗 **Behance** | [Capas de album](https://www.behance.net/gallery/233248173/Chapter-2-In-The-Forest))
+
+Parei de postar no Behance porque agora passou a cobrar
 
 ---
 
 🎥 **Making of dos Projetos:**
 
-* Fresh Skin
-* Woman Face
 * Deep of Sea
   📽️ [Assista aqui](https://www.youtube.com/watch?v=pfV35_w7foY&t=715s)
 
